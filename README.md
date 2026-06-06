@@ -1,22 +1,18 @@
-<p align="center">
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/zanka/tumblr_7b791876215520a183549b3307a0cacc_db200fb9_2048%20(4)%20(1)%20(1).png" />
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/zanka/tumblr_9a8448f33c414301a2415fc3ad6a3704_16ea9505_2048%20(3).gif" />
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/jabber/tumblr_7b791876215520a183549b3307a0cacc_db200fb9_2048%20(4)%20(1)%20(2).png" />
-</p>
-<p align="center">
-　　
-</p>
-<p align="center">
-──　　<strong>NOX</strong>IS　╱　NYAXIS　　(ꐦ¬_¬)　　<strong>BLACK</strong>　　　　　　　　　　8teen　　🎐　　10/25
-</p>
-<p align="center">
-    　           yumeshipper　　　(¬_¬")　　　he　　　　╱　　　　star⠀
-</p>
-<p align="center">
-　　
-</p>
-<p align="center">
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/jabber/tumblr_7b791876215520a183549b3307a0cacc_db200fb9_2048%20(4)%20(1)%20(2).png" />
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/jabber/tumblr_9a8448f33c414301a2415fc3ad6a3704_16ea9505_2048%20(4).gif" />
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/jabber%20%2B%20zanka%20psd/zanka/tumblr_7b791876215520a183549b3307a0cacc_db200fb9_2048%20(4)%20(1)%20(1).png" />
-</p>
+۶ৎ<img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605193046.png"> <img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">
+
+$${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   intersex
+
+black　   hispanic　   8teen
+
+<img src="https://file.garden/aIrFR9W4twp1wUOQ/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250_1.png" />
+
+$${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 🍡
+
+🍔　 aroace　   gay(mlm)　 soft alpha
+
+ 
+ 🔥 　 　iwec   always　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
+ 
+$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　atabook　rentry　　  ͝𓈒♡
+
+<br clear="left"/>
