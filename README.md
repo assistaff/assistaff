@@ -16,7 +16,7 @@ $${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 �
 $${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　atabook　rentry　　  ͝𓈒♡
 
 <br clear="left"/>
-<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605230126.png">
+<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="250" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605230126.png">
 
 <p align="center">
        <em>fav　 arc</em>:　enies lobby　/　at　<ins>whole cake</ins>
