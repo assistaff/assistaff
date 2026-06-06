@@ -2,7 +2,7 @@
 
 $${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   intersex
 
-black　   hispanic　   8teen
+   symbol　   black　   hispanic　   8teen
 
 <img src="https://file.garden/aIrFR9W4twp1wUOQ/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250_1.png" />
 
