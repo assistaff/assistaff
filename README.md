@@ -16,3 +16,24 @@ $${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 �
 $${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　atabook　rentry　　  ͝𓈒♡
 
 <br clear="left"/>
+<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
+
+<p align="center">
+       <em>fav　 arc</em>:　enies lobby　/　at　<ins>whole cake</ins>
+ </p>
+ <p align="center">
+       multiship.　 📿　 fixation:　acelaw/yamace
+ </p>
+ <p align="center">
+        <strong>DNI</strong>　   proship  maroace  lawlu  <strong>etc</strong>
+ </p>
+ <p align="center">
+        i block freely/will warn mfs ab weirdos so
+ </p>
+  <p align="center">
+       <strong>fandom  dniuid</strong>　 cus　yall weird
+  </p>
+<p align="center">
+       $${\color{#6D9DAB} 𝜗𝒞˟}$$　 <a href= "https://github.com/transadori"> main acc</a>　<a href= "https://rentry.co/s-hawk"> extended </a> 　(｡•̀ㅁ•́｡)
+</p>
+<br clear="right"/>
